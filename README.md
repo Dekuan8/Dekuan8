@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Dekuan8
+- 👀 I’m interested in the new world and the outsider.
